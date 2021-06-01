@@ -1,4 +1,4 @@
-### **Hola a todos, soy un nuevo usuario**
+### Hola a todos, soy un nuevo usuario
 Espero que te encuentres muy bien 
 
 <!--
