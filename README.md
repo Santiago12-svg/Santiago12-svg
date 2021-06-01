@@ -1,4 +1,6 @@
-### Hola a todos.
+### **Hola a todos, soy un nuevo usuario**
+Espero que te encuentres muy bien 
+
 <!--
 **Santiago12-svg/Santiago12-svg** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
