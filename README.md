@@ -1,7 +1,7 @@
-### Hola a todos, soy un nuevo usuario
+## Hola a todos, soy un nuevo usuario
 Espero que te encuentres muy bien, mi nombre es Jhoan Santiago Cárdenas, actualmente me encuentro cursando el grado 11, me considero una persona que se desempeña bien en su colegio y estoy aquí para aprender un poco en este campo :smile: :sunglasses:.
 
-## Cualidades y gustos propios:
+### Cualidades y gustos propios:
 Una de la cualidades que más me representan como persona es que 
 
 <!--
