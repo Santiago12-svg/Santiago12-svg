@@ -3,11 +3,14 @@ Espero que te encuentres muy bien, mi nombre es Jhoan Santiago Cárdenas, actual
 
 ### Cualidades y gustos propios:
 1. Una de las cualidades que más me representan como persona es que soy muy responsable a la hora de hacer mis trabajos, cumplir con todas mis responsabilidades y realizar todos los compromisos míos.
-2. Soy un amante de los deportes, no importa si los practico o no siempre me ha llamado la atención cualquiera de los deportes que existen.
+2. Soy un amante de los deportes, no importa si los practico o no siempre me ha llamado la atención cualquiera de los deportes que existen. :football: :soccer: :golf: :tennis: :basketball: 
 
-* Siempre me destaqué en el Futbol, en el colegio estaba en el equipo que se formaba todos los años, en el futbol existen 4 posiciones generales que son el arquero, defensas, volantes y delanteros, por tener cualidades rápidas y defensivas jugaba de defensa derecho.
+* Siempre me destaqué en el Futbol, en el colegio estaba en el equipo que se formaba todos los años, en el futbol existen 4 posiciones generales que son el arquero, defensas, volantes y delanteros, por tener cualidades rápidas y defensivas jugaba de defensa derecho :soccer:.
 3. Me gusta mucho la música, la mayoría de géneros que existen me llaman mucho la atención porque genera en el humano una percepción muy extraordinaria, que puede hacerte sentir mejor en momentos difíciles 
-* Mis géneros
+* Mis género favorito es el pop, ya que es un genero que transmite muchos sentimientos.
+4. Actualmente me encuentro estudiando para sacar un buen resultado en el examén de estado para intentar entrar en cualquiera de las mejores universidades del país.
+5. Me gustaría estudiar medicna para ayudar a diferentes personas con mis conocimientos, me gusta este campo porque me considero bueno y me llama mucho la atención :hearts:. 
+Te deseo suerte por este camino de conocimiento. 
 
 
 
