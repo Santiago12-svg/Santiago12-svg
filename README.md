@@ -10,7 +10,9 @@ Espero que te encuentres muy bien, mi nombre es Jhoan Santiago Cárdenas, actual
 * Mis género favorito es el pop, ya que es un genero que transmite muchos sentimientos.
 4. Actualmente me encuentro estudiando para sacar un buen resultado en el examén de estado para intentar entrar en cualquiera de las mejores universidades del país.
 5. Me gustaría estudiar medicna para ayudar a diferentes personas con mis conocimientos, me gusta este campo porque me considero bueno y me llama mucho la atención :hearts:. 
+
 Te deseo suerte por este camino de conocimiento. 
+
 
 
 
